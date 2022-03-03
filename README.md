@@ -1,0 +1,1 @@
+# GD_ThumbNails_2n3-BHK_p-4-units-to-a-core-_-optimize
